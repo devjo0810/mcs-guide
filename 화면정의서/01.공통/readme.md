@@ -1,0 +1,1 @@
+[구글 파워포인트 링크](https://docs.google.com/presentation/d/1JgTbKJqSnTBucX3cvT7gmUKOOkro3uydPEPOoNP9Bxk/edit?usp=sharing)
